@@ -1,2 +1,2 @@
-# translator-yh.github.io
+# YogeshwariH.github.io
 Featured Translation Work by Yogeshwari hardikar
